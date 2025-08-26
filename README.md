@@ -28,7 +28,7 @@ Premium FiveM QB-Core Scripts built for performance, immersion, and realism.
 📥 How To Get Scripts
 
 🔗 Join our Discord to purchase & download:
-👉 [DISCORD LINK HERE]
+👉[https://discord.gg/e53rbFubXX]
 
 🏷️ Branding
 
